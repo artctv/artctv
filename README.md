@@ -21,7 +21,7 @@ Here are some ideas to get you started:
 Social and Communications
 -------------------------
 
-**Email:** `artctv@outlook.com`
+**Email:** `artctvcode@gmail.com`
 
 **Skype:** `live:.cid.a982043292568eb1`
 
